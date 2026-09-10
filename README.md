@@ -1,1 +1,1 @@
-# dypz-shastov
+Shastov Andrey 2012
